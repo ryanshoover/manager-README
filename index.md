@@ -61,4 +61,4 @@ I do woodworking, though not as much as I’d like (remember the two boys?!). An
 
 I don’t have any pets right now, but I’m a dog guy. We had a scottie that died a few years ago and a Golden that died just last year. We just haven’t been ready for a new dog quite yet, but maybe soon.
 
-I watch more movies than I should, especially horror movies. Don’t know why - something about the mystery and the adrenaline rush. I’m a sucker for zombies, vampires, and demons. 30 Days of Night - it’s a masterpiece!# Manager Readme
+I watch more movies than I should, especially horror movies. Don’t know why - something about the mystery and the adrenaline rush. I’m a sucker for zombies, vampires, and demons. 30 Days of Night - it’s a masterpiece!
