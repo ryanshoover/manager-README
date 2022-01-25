@@ -58,8 +58,6 @@ I’ve got a wife and two little boys. You’ll definitely meet Alex and Ian if 
 ![Cadillac Ranch](images/cadillac-ranch.jpg)
 
 I do woodworking, though not as much as I’d like (remember the two boys?!). And actually I’ve got my desk set up out in the garage / wood shop. During the horrors of 2020, I tried working from literally every room in the house. The garage was the only spot where I wasn’t in the way of the rest of the family, so I ended up setting up out there and we’ve all been much happier ever since.
-![Cedar bowl](images/cedar-bowl.jpg)
-
 
 I don’t have any pets right now, but I’m a dog guy. We had a scottie that died a few years ago and a Golden that died just last year. We just haven’t been ready for a new dog quite yet, but maybe soon.
 
